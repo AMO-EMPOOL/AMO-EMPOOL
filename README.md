@@ -1,1 +1,3 @@
 one day ... one day i will have info on here ...
+
+![](https://komarev.com/ghpvc/?username=AMO-EMPOOL&color=b24732&style=plastic&label=♡&abbreviated=true)
